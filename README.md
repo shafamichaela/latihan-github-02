@@ -1,2 +1,2 @@
 hari senin
-
+mendekati uts
